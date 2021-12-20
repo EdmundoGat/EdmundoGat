@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @EdmundoGat but you can call me Mundo
+- I go through life writing, sometimes stories, sometimes code. 
